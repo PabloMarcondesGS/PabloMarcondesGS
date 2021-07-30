@@ -1,4 +1,4 @@
-### it´s over... i have hight ground
+### it's over i have the high ground
 
  <div>
   <a href="https://github.com/PabloMarcondesGS">
